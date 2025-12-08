@@ -1,6 +1,6 @@
 ![image](https://github.com/catplvsplus/catplvsplus/assets/69035887/3ff278dd-0410-488c-9ee2-f6f41a83e641)
 
-
+<!--
 ## 𝙂𝙄𝙏𝙃𝙐𝘽 𝙎𝙏𝘼𝙏𝙎
 
 <h4 align="center">
